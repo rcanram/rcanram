@@ -35,8 +35,8 @@ Trabajo de Asesor fiscal /  financiero, inversor por pasión y aprendiz constant
 
 ### 📫 Contacto rápido
 
-- **LinkedIn:** [Tu LinkedIn](#)
-- **Correo:** tuemail@example.com
+- **LinkedIn:** [https://www.linkedin.com/in/rubencandelaramirez](#)
+- **Correo:** rcanram@gmail.com
 
 ---
 
